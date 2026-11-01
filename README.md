@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=gi-ho&color=2f3032&label=cartman+so+cute)
-![Hi](https://files.catbox.moe/ds9y5t.gif)
+![Hi](https://files.catbox.moe/4woufa.png)
 
             Eric He/Him Neufic
         C+H enc, Usually offtab W2I
