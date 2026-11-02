@@ -6,7 +6,7 @@
 
 Cudcomf C+H very enc, I am almost always offtab so W2I
 
-I am Super anxious and shy but I ♡ meeting new people and Making friends so please Dont be shy to say Hi to me ingame…
+I am Super anxious and shy so IWCaution but I ♡ meeting new people and Making friends, please Dont hesitate to talk to me ingame!!!
 
 Read my [rentry](https://rentry.co/inho) for more info ^_^
        
