@@ -4,8 +4,8 @@
 
 ‎Eric He/Him Neufic & biggest Eric Cartman fan
 
-Cudcomf C+H enc, Usually offtab so W2I
+Cudcomf C+H very enc, Usually offt so W2I
 
-Read my rentry fpr more info ^~^
+Read mi [rentry](https://rentry.co/inho)for more info ^~^
        
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3166tsapaifrxkjana6vw3lemm4e&cover_image=true&theme=default&show_offline=lfalse&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)
