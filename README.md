@@ -5,7 +5,8 @@
 ‎Eric He/Him Neufic & biggest Eric Cartman fan
 
 Cudcomf C+H very enc, Usually offt so W2I
-I am anxious… I dont wanna talk if ur not gonna talk to me nice
+
+I am Super anxious… I dont wanna talk if ur not gonna talk to me nice
 
 Read mi [rentry](https://rentry.co/inho) for more info ^~^
        
