@@ -4,7 +4,7 @@
 
 ‎Eric He/Him Neufic & biggest Eric Cartman fan
 
-C+H enc, Usually offtab W2I
+Cudcomf C+H enc, Usually offtab so W2I
 
 Read my rentry fpr more info ^~^
        
