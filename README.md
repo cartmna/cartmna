@@ -4,7 +4,7 @@
 
 ‎Eric He/Him Neufic & biggest Eric Cartman fan
 
-Cudcomf C+H very enc, I am almost always offt so W2I
+Cudcomf C+H very enc, I am almost always offtab so W2I
 
 I am Super anxious and shy but I ♡ meeting new people and Making friends so please Dont be shy to say Hi to me ingame…
 
