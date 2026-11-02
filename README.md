@@ -6,7 +6,7 @@
 
 Cudcomf C+H very enc, Usually offt so W2I
 
-I am Super anxious… I dont wanna talk if ur not gonna talk to me nice
+I am Super anxious but I ♡ meeting new people and Making friends Dont be shy to say Hi to me ingame…
 
 Read mi [rentry](https://rentry.co/inho) for more info ^~^
        
