@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=gi-ho&color=2f3032&label=cartman+so+cute)
+![](https://komarev.com/ghpvc/?username=gi-ho&color=2f3032&label=hi)
 ![](https://files.catbox.moe/1ti9su.png)
 ![](https://64.media.tumblr.com/0b1d6b90ae2e293860167393fae4476e/23ee78def752eb45-07/s500x750/7e44048dcfbccf5bc8059a6ae79add7d16e124a9.pnj)
 ![](https://64.media.tumblr.com/b9738f0cdc84d58ff213a53de2d55709/cbc797504649fcc0-c0/s100x200/797bfc5a8d170c50062eeb3c25819e9059e2f3bd.gifv) ![](https://64.media.tumblr.com/a51dce21077862ad60d11cffaea55cd6/cbc797504649fcc0-2f/s100x200/c1998b51b86f5a7f527715f1ed136ab95b67d80d.gifv) ![](https://64.media.tumblr.com/21a30cc4de96c9e1ce5e9bd2a4cf34f9/cbc797504649fcc0-d6/s100x200/166e3346404c8d8b9964bef9482b60b9b6e15f3f.gifv)
