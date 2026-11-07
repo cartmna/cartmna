@@ -8,7 +8,7 @@
 
 ‎Eric He/Him Neufic & biggest Eric Cartman fan
 
-Cudcomf C+H very enc, I am almost always offtab so W2I ^~^ Everyone is free to int unless I have DNI in my name
+Cudcomf C+H very I dont even care, I am almost always offtab so W2I ^~^ Everyone is free to int 
 
 I am Super anxious and shy so iwcaution but I ♡ meeting new people and Making friends, please dont hesitate to talk to me ingame!!!
 
